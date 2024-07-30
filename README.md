@@ -1,6 +1,6 @@
 Privacy Policy for Elite Academy App
 
-**Last Updated:** 22 December 2023
+**Last Updated:** 30 July 2024
 
 **Information Collection and Use**
 
